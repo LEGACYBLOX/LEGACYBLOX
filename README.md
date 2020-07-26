@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello before you download you need know how to use it get to this site
 
 <!--
 **LEGACYBLOX/LEGACYBLOX** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
